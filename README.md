@@ -21,4 +21,14 @@
 
 $\mathbf{\textrm{stuff like whisper to interact [w2i]　+　using tonetags with me are very helpful.　i struggle talking to new people at times due to my anxiety. }}$
 
+<p align="center">
+  <font face="serif">
+    <a href="https://pharmacide.atabook.org/?page=1">atabook</a>
+    &nbsp;&nbsp;·&nbsp;&nbsp;
+    <a href="https://www.roblox.com/users/1278720204/profile">roblox</a>
+    &nbsp;&nbsp;·&nbsp;&nbsp;
+    <a href="https://docs.google.com/presentation/d/1VwcSGvzmOb2Xxty5d8G1k5CxV7olvcPkfFerNwmVyv0/edit?slide=id.p#slide=id.p">partner sys.</a>
+  </font>
+</p>
+
 　　![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)
