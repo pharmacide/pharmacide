@@ -5,7 +5,7 @@
   <img src="https://komarev.com/ghpvc/?username=pharmacide&color=red" alt="Profile Views Counter">
 </p>
 
-　　　　 　　 ![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)
+　　　　 ![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)
 
 `⚠`　　 $\mathbf{\textrm{hii!! i'm lydian,　i prefer to be called lyds, rodi or deadie　[or you may ask pref. depending on whos fronting]}}$
 
