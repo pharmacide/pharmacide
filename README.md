@@ -5,6 +5,15 @@
   <img src="https://komarev.com/ghpvc/?username=pharmacide&color=red" alt="Profile Views Counter">
 </p>
 
+<div align="center">
+
+<details> 
+  <summary> $\text{byf}$ </summary> 
+  $\text{feel free to wisp/send me a friend req.　i don't bite, and i would love to meet new people,　i just ask for patience as it may be a little difficult for me.}$ 
+</details>
+
+</div>
+
 　　![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)
 
 `⚠`　　 $\mathbf{\textrm{hii!! i'm lydian,　i prefer to be called lyds, rodi or deadie　[or you may ask pref. depending on whos fronting]}}$
