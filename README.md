@@ -18,7 +18,7 @@
 
 `⚠`　　 $\mathbf{\textrm{hii!! i'm lydian,　i prefer to be called lyds, rodi or deadie　[or you may ask pref. depending on whos fronting]}}$
 
-> $\textrm{‎　17,　turning 18 in 5 days!!　━　taken by my partner sys.　since 10/29/22 ♡ }$ 
+> $\textrm{‎　17,　turning 18 in 4 days!!　━　taken by my partner sys.　since 10/29/22 ♡ }$ 
 
 > $\textrm{‎　he / ‎him / sae　━　masc.　terms　+　slightly fem.　terms　are　okay!! }$ ![](https://i.imgur.com/Qv4t8t4.gif)
 
